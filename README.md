@@ -15,15 +15,15 @@
 
 - 🤝 I’m looking for help with **Advanced AI-Driven WordPress Projects**
 
-- 👨‍💻 All of my projects are available at [http://erangasandamalisamarathunga.infinityfreeapp.com/portfolio](http://erangasandamalisamarathunga.infinityfreeapp.com/portfolio)
+- 👨‍💻 All of my projects are available at 
 
-- 📝 I regularly write articles on [http://erangasandamalisamarathunga.infinityfreeapp.com/blog](http://erangasandamalisamarathunga.infinityfreeapp.com/blog)
+- 📝 I regularly write articles on 
 
 - 💬 Ask me about **WordPress, Responsive Design, and WooCommerce**
 
 - 📫 How to reach me **esandamali96@gmail.com**
 
-- 📄 Know about my experiences [http://erangasandamalisamarathunga.infinityfreeapp.com/#resume](http://erangasandamalisamarathunga.infinityfreeapp.com/#resume)
+- 📄 Know about my experiences
 
 - ⚡ Fun fact **Call me Era!**
 
